@@ -1,4 +1,4 @@
-![welcome](https://github.com/ramiromay/ramiromay/assets/123800454/5f5c5843-b184-46e9-a5fa-e80e643fd5d7)
+![presentation_rmm](https://github.com/ramiromay/ramiromay/assets/123800454/f0bb9257-5ddc-4bb1-b010-452241b79f9b)
 
 # Hola, soy Ramiro👋🏻👨🏻‍💻
 
